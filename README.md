@@ -1,1 +1,0 @@
-# RightfulTechnologies.github.io
